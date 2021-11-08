@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @hatearmy
+- 👀 I’m interested in 🐽
+- 🌱 I’m currently learning 🐋
+- 💞️ I’m looking to collaborate on 💰
+- 📫 How to reach me
+  - @HateArmyWatch on twitter
+  - hatearmy.com on YT
