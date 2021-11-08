@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate on 💰
 - 📫 How to reach me
   - @HateArmyWatch on twitter
-  - hatearmy.com on YT
+  - youtube.com/c/HateArmyWatch on YouTube
+  - or hatearmy.com
